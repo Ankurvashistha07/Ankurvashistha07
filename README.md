@@ -10,6 +10,8 @@ My project experience spans e-commerce analytics, healthcare operations, real-ti
 
 With a background in engineering, analytics, and content strategy, I bring a unique mix of problem-solving, communication, and analytical thinking—allowing me to translate data insights into actionable outcomes for diverse stakeholders.
 
+📫 Let’s Connect
+
 If you’re looking for a Data Analyst who can transform raw data into impactful insights and drive smarter decisions, I’d be happy to connect.
 
 ✉️ Email: ankurvashisth4@gmail.com
